@@ -2,7 +2,7 @@
 - 👀 I’m interested in Learning New Things
 - 🌱 I’m currently pursuing BE in CSE
 - 💞️ I’m looking to Become a SDE
-- 📫 Reach me on E-mail: abhishek890.kr@gmail.com
+- 📫 Reach me at E-mail: abhishek890.kr@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
